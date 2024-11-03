@@ -23,7 +23,7 @@ Welcome to **PVZHybrid.net**, your premier destination for the **Plants vs Zombi
 
 **Plants vs Zombies Hybrid** is a fan-made modification of the classic **Plants vs Zombies** game. It brings together new plants, zombies, levels, and game modes to enhance your gaming experience. Whether you're a veteran player or new to the franchise, PVZHybrid offers fresh challenges and endless fun.
 
-[Learn more about the game's origin and development »](https://pvzhybrid.net/about)
+[Learn more about the game's origin and development »](https://pvzhybridmodapk.pro/about-us/)
 
 ---
 
@@ -46,7 +46,7 @@ Experience a blend of classic tower defense and innovative mechanics:
 - **Dynamic Weather**: Adapt your strategy to changing weather conditions that affect gameplay.
 - **Boss Battles**: Face off against powerful zombie bosses with unique abilities.
 
-[Watch gameplay videos and trailers »](https://pvzhybrid.net/gameplay)
+[Watch gameplay videos and trailers »](pvzhybridmodapk.pro)
 
 ---
 
@@ -54,7 +54,7 @@ Experience a blend of classic tower defense and innovative mechanics:
 
 Getting started is easy:
 
-1. Visit our [Download Page](https://pvzhybrid.net/download).
+1. Visit our [Download Page](pvzhybridmodapk.pro).
 2. Click on the **Download Now** button.
 3. Choose the version compatible with your operating system (Windows/macOS).
 
@@ -69,7 +69,7 @@ Follow these simple steps to install PVZHybrid:
 3. **Complete Setup**: Wait for the installation to finish and click **Finish**.
 4. **Launch the Game**: Open PVZHybrid from your desktop or start menu.
 
-[Need help? Visit our Installation Support Page »](https://pvzhybrid.net/support/installation)
+[Need help? Visit our Installation Support Page »](pvzhybridmodapk.pro)
 
 ---
 
@@ -109,7 +109,7 @@ A: Currently, PVZHybrid is available only for Windows and macOS.
 
 **Q4: How do I report bugs or issues?**
 
-A: Please use our [Contact Form](https://pvzhybrid.net/contact) to report any problems.
+A: Please use our [Contact Form](https://pvzhybridmodapk.pro/contact-us/) to report any problems.
 
 ---
 
@@ -120,9 +120,9 @@ Join our growing community to share tips, tricks, and fan art:
 - **Forums**: Participate in discussions on our [Official Forums](https://pvzhybrid.net/forums).
 - **Discord**: Chat with other players on our [Discord Server](https://discord.gg/pvzhybrid).
 - **Social Media**:
-  - [Facebook](https://facebook.com/pvzhybrid)
-  - [Twitter](https://twitter.com/pvzhybrid)
-  - [Instagram](https://instagram.com/pvzhybrid)
+  - [Facebook](https://pvzhybridmodapk.pro/contact-us/)
+  - [Twitter](https://pvzhybridmodapk.pro/contact-us/)
+  - [Instagram](https://pvzhybridmodapk.pro/contact-us/)
 
 ---
 
@@ -131,7 +131,7 @@ Join our growing community to share tips, tricks, and fan art:
 Have questions or feedback? We'd love to hear from you!
 
 - **Email**: support@pvzhybrid.net
-- **Contact Form**: [Send us a message](https://pvzhybrid.net/contact)
+- **Contact Form**: [Send us a message](https://pvzhybridmodapk.pro/contact-us/)
 
 ---
 
