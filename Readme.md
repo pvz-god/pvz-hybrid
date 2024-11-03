@@ -117,12 +117,12 @@ A: Please use our [Contact Form](https://pvzhybridmodapk.pro/contact-us/) to rep
 
 Join our growing community to share tips, tricks, and fan art:
 
-- **Forums**: Participate in discussions on our [Official Forums](https://pvzhybrid.net/forums).
-- **Discord**: Chat with other players on our [Discord Server](https://discord.gg/pvzhybrid).
+- **Forums**: Participate in discussions on our [Official Forums](https://pvzhybridmodapk.pro).
+- **Discord**: Chat with other players on our [Discord Server](https://pvzhybridmodapk.pro).
 - **Social Media**:
-  - [Facebook](https://pvzhybridmodapk.pro/contact-us/)
-  - [Twitter](https://pvzhybridmodapk.pro/contact-us/)
-  - [Instagram](https://pvzhybridmodapk.pro/contact-us/)
+  - [Facebook](https://pvzhybridmodapk.pro)
+  - [Twitter](https://pvzhybridmodapk.pro)
+  - [Instagram](https://pvzhybridmodapk.pro)
 
 ---
 
@@ -130,18 +130,18 @@ Join our growing community to share tips, tricks, and fan art:
 
 Have questions or feedback? We'd love to hear from you!
 
-- **Email**: support@pvzhybrid.net
+- **Email**: marketmate32@gmail.com
 - **Contact Form**: [Send us a message](https://pvzhybridmodapk.pro/contact-us/)
 
 ---
 
 ## Legal Disclaimer
 
-**PVZHybrid.net** is a fan-made project and is not affiliated with or endorsed by Electronic Arts Inc. or PopCap Games. All trademarks, logos, and images are property of their respective owners.
+**pvzhybridmodapk.pro** is a fan-made project and is not affiliated with or endorsed by Electronic Arts Inc. or PopCap Games. All trademarks, logos, and images are property of their respective owners.
 
 ---
 
-**© 2023 PVZHybrid.net. All rights reserved.**
+**© 2023 pvzhybridmodapk.pro. All rights reserved.**
 
 ---
 
