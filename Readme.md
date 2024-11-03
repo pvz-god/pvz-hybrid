@@ -130,7 +130,7 @@ Join our growing community to share tips, tricks, and fan art:
 
 Have questions or feedback? We'd love to hear from you!
 
-- **Email**: marketmate32@gmail.com
+- **Email**: [support_pvzhybridmodapk](marketmate32@gmail.com)
 - **Contact Form**: [Send us a message](https://pvzhybridmodapk.pro/contact-us/)
 
 ---
